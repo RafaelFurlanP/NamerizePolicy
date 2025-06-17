@@ -1,6 +1,6 @@
 # Privacy Policy for Namerize
 
-*Last Updated: January 2025*
+*Last Updated: June 2025*
 
 ## 1. Introduction
 
