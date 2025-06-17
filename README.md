@@ -108,8 +108,7 @@ We may update this privacy policy from time to time. We will notify you of any c
 
 If you have questions about this privacy policy or how we handle your data, please contact us at:
 
-**Email:** [Your Contact Email]  
-**Address:** [Your Business Address]
+**Email:** rapina228@gmail.com
 
 ## 12. Subscription Terms
 
